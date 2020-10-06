@@ -1,4 +1,4 @@
-##**INGREDIENTS**
+## **INGREDIENTS**
 
 - 150 g oats blended
 - 300 g cooked sweet potato
