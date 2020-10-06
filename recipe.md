@@ -1,4 +1,4 @@
-**INGREDIENTS**
+##**INGREDIENTS**
 
 - 150 g oats blended
 - 300 g cooked sweet potato
@@ -12,12 +12,12 @@
 - 4 tbsp rice flour
 - 4 tbsp Psyllium husk
 - 4 tbsp gram flour - for coating
-  **_EXTRA INGREDIENT_**
+  > **_EXTRA INGREDIENT_**
 - Omdat ik alle ingredienten er al in had staan voor de opdracht
 - Daarom niet vergeten een beetje liefde toe te voegen
 - Voor de smaak!
 
-**DIRECTIONS**
+  > **DIRECTIONS**
 
 - Roughly chop the sweet potato. Boil until cooked through, drain and rinse in cold water, then transfer to a medium mixing bowl.
 
