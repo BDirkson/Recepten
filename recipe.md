@@ -12,7 +12,7 @@
 - 4 tbsp rice flour
 - 4 tbsp Psyllium husk
 - 4 tbsp gram flour - for coating
-  **\_EXTRA INGREDIENT-**
+  **_EXTRA INGREDIENT_**
 - Omdat ik alle ingredienten er al in had staan voor de opdracht
 - Daarom niet vergeten een beetje liefde toe te voegen
 - Voor de smaak!
